@@ -14,5 +14,5 @@ Currently transitioning into creative technology & media arts research
 
 ## Let's connect
 🐦 @tomosakutai_lab(https://x.com/tomosakurai_lab)  
-🌐 [yoursite.com](https://yoursite.com)  
+🌐 tomosakurai.com(https://yoursite.com)  
 ✉️ tomosakurai.synesthesia@gmail.com
