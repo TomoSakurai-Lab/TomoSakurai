@@ -13,6 +13,6 @@ Full-stack web developer (freelance, 3+ years)
 Currently transitioning into creative technology & media arts research
 
 ## Let's connect
-🐦 @tomosakutai_lab(https://x.com/tomosakurai_lab)  
-🌐 tomosakurai.com(https://yoursite.com)  
+🐦 [@tomosakutai_lab](https://x.com/tomosakurai_lab)  
+🌐 [tomosakurai.com](https://tomosakurai.com)  
 ✉️ tomosakurai.synesthesia@gmail.com
